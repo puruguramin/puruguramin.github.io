@@ -1,1 +1,0 @@
-# puruguramin.github.io
